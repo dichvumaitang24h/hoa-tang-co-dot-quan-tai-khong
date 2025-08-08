@@ -9,7 +9,7 @@
 # Hỏa táng là hình thức an táng trong đó thi hài người mất được đưa vào lò hỏa táng và xử lý bằng nhiệt độ cao, thường từ 800 – 1.200°C, để thi thể trở thành tro cốt. Sau đó, tro cốt sẽ được thu gom và đặt vào bình gốm hoặc hũ sành để người thân mang về thờ cúng hoặc gửi vào nghĩa trang.
 
 # 
-
+Xem thêm: https://maitanggiangtho.vn/hoa-tang-co-dot-quan-tai-khong/
 # Hỏa táng có nguồn gốc từ văn hóa Ấn Độ, Trung Hoa và được nhiều tôn giáo như Phật giáo, Hindu giáo khuyến khích vì quan niệm thân xác chỉ là tạm bợ, sau khi chết nên trả lại cát bụi cho tự nhiên.
 
 # 
